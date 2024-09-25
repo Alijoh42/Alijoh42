@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alijoh42
+- 👀 I’m interested in cybersecurity related topics
+- 🌱 I’m currently learning cybersecurity
+- 📫 Reach me on discord at @alijoh
+- 😄 Pronouns: he/him
